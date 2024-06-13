@@ -1,0 +1,4 @@
+Na cidade de Peruíbe, localizada na Baixada Santista, foi identificado um surto de dengue, gerando preocupação entre os moradores do bairro Park Daville. Diante dessa situação, o objetivo da atividade foi encontrar uma maneira de informar os moradores sobre a dengue, visando aumentar a conscientização e promover medidas preventivas para combater a proliferação do mosquito transmissor.
+
+
+Essa iniciativa está alinhada aos Objetivos de Desenvolvimento Sustentável (ODS), em particular ao ODS 3 - Saúde e Bem-Estar, que busca assegurar uma vida saudável e promover o bem-estar para todos, em todas as idades. Também contribui para o ODS 11 - Cidades e Comunidades Sustentáveis, ao promover ações para tornar as cidades mais inclusivas, seguras, resilientes e sustentáveis. A educação e conscientização sobre a dengue são passos importantes para garantir a saúde da população e construir comunidades mais sustentáveis.
